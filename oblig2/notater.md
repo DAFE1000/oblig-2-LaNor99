@@ -1,1 +1,0 @@
-![Analytisk utregning](dafe1000-oblig2-notater.png)
